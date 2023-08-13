@@ -1,0 +1,2 @@
+Nano : nano_38oxb8isbbgaesy7e5ms8p3edzg96grwgcwem1wfursmdi787eutamkqmair
+Banano : ban_38oxb8isbbgaesy7e5ms8p3edzg96grwgcwem1wfursmdi787eutamkqmair
